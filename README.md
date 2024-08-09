@@ -2,7 +2,7 @@
 - 👀 I’m interested in C++ game developing
 - 🌱 I’m currently learning C++ basic
 - 💞️ I’m looking to collaborate on C++ games
-- 📫 How to reach me i do not know
+- 📫 How to reach me black77joker99@gmail.com
 - 😄 Pronouns: men
 - ⚡ Fun fact: 2137 is a Poland meme
 
